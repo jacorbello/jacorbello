@@ -23,7 +23,7 @@
 ## ⚡ Quick Facts
 
 - 🌍 Avid traveler and outdoor enthusiast
-- 📚 Hard sci-fi addict (Asimov, Liu Cixin, Clarke)
+- 📚 Hard sci-fi addict
 - 🧠 Forever curious about tech + philosophy crossover
 
 ---
